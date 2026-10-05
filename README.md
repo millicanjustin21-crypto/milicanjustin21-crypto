@@ -1,4 +1,5 @@
 # Justin Millican
+Operations | Supply Chain | AI-Assisted Product Development | Business Systems
 
 ### Operations · Supply Chain · Business Systems · Digital Product Development
 
